@@ -4,7 +4,7 @@
 - 💞️ I’m looking for a job as a QA engineer
 - 📫 How to reach me:
 - Mail - vowkaz@inbox.ru
-- Telegram - @vowkaz
+- Telegram - @IvanKazancev
 - LinkedIn https://www.linkedin.com/in/%D0%B8%D0%B2%D0%B0%D0%BD-%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D1%86%D0%B5%D0%B2-b60569248
 
 
